@@ -1,0 +1,4 @@
+- Bianda Saputra Setya Ramadhan
+- 18 yo
+- Student
+- Male
